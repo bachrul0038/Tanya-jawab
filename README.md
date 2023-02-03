@@ -9,4 +9,4 @@ Q&A Bareng AHHABA CHANNEL,silahakan yang mau bertanya seputar apapun itu atau di
 
 dan kami juga menyediakan discord untuk menjadikan sebuah komunitas dan tempat sheering pengalaman 
 # link-discord
-https://discord.com/channels/833056424115961927/944083089997570059
+https://discord.gg/xRRdQR3Q
